@@ -1,4 +1,4 @@
-# Hi there, I'm Lucía 🌼
+# Hi, I'm Lucía 🍫 🪐
 
 <img src=fondo.PNG>
 I am an industrial engineer and data analyst with strong ambition and a fearless approach to decision-making.
